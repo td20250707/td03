@@ -13,4 +13,4 @@
 想免费观看日本AV免费？选择合法平台，注册后即可享受免费的流媒体播放和更新的影片资源。确保平台安全，避免非法网站，保障个人隐私。
 这样你就能轻松找到优质、免费的日本AV资源，享受高清观影体验。
 
-<span style="display:none;">[Canonical link](https://github.com/td20250707/td03）</span>
+<span style="display:none;">[Canonical link](https://github.com/td20250707/td03 ）</span>
